@@ -8,7 +8,9 @@ Indiehacker 🦄. Meditator 🧘🏻
 🧑🏻‍💻 Personal - https://ayushnarula.com
 
 🚀 Poudle Mindfulness app - https://poudle.com
+
 🚀 Newontop Remote jobs board - https://newon.top
+
 
 🖌️ Currently working on- https://buzzbison.com
 
