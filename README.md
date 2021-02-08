@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-I am in process of building a startup. Mindfulness and meditation interests me
+Startups. Mindfulness and meditation interests me
 
 Indiehacker 🦄. Meditator 🧘🏻
 
