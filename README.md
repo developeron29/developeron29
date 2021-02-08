@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-Startups. Mindfulness and meditation interests me
+Startups, Mindfulness and meditation interests me
 
 Indiehacker 🦄. Meditator 🧘🏻
 
